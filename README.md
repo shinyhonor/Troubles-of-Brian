@@ -1,2 +1,2 @@
-# Trouble-of-Brians
+# Troubles-of-Brian
 Brian's Troubles
